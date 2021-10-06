@@ -1,3 +1,5 @@
+*Hobbies and Interests*
+
 - Gym
 - Gaming
 - Dancing
