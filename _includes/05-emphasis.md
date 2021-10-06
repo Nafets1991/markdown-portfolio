@@ -1,0 +1,7 @@
+- *Fast learner*
+- *Can Code*
+- _Asseritive_
+   - _Can work well with People_
+   - **Resolve Conflicts fast**
+- Very Approachable
+- Fun to be around 😄
