@@ -2,6 +2,6 @@
 - *Can Code*
 - _Asseritive_
    - _Can work well with People_
-   - **Resolve Conflicts fast**
-- Very Approachable
-- Fun to be around 😄
+   - _Resolve Conflicts fast_
+- *Very Approachable*
+- *Fun to be around 😄*
