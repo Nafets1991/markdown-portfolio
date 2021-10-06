@@ -1,5 +1,3 @@
-**My personal Skils and attributes**
-
 - Fast learner
 - Can Code
 - Asseritive
