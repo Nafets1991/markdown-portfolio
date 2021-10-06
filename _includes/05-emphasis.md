@@ -1,5 +1,5 @@
 - *Fast learner*
-- *Can Code*
+- *Can Code with Python*
 - _Asseritive_
    - _Can work well with People_
    - _Resolve Conflicts fast_
